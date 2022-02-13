@@ -8,4 +8,4 @@
 - 📫 How to reach me: tristan.leclair42@gmail.com 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I can name pretty much any country's flag if you show it to me. 
-- My dream project: A game that uses music to drive both mechanics and story.
+- 💭 Dream project: A game that uses music to drive both mechanics and story.
